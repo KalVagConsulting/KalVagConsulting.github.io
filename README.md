@@ -1,1 +1,0 @@
-# KalVagConsulting.github.io
